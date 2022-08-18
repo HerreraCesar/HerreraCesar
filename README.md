@@ -7,6 +7,5 @@
 ## Let's talk
 
 - **herrera.cesar.arg@gmail.com**
-- **[GitHub](https://github.com/HerreraCesar/)**
 - **[LinkedIn](https://www.linkedin.com/in/herrera-cesar/)**
 - **[Website](https://herreracesar.site/)**
